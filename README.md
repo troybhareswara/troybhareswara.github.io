@@ -1,1 +1,1 @@
-# troybhareswara.github.io/Janetra/
+# troybhareswara.github.io
